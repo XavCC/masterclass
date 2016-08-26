@@ -1,2 +1,2 @@
 # masterclass
-Master class &amp; conference documentation
+Master classes, conferences, ateliers = documentation
