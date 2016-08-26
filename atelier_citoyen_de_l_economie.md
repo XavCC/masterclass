@@ -131,40 +131,40 @@ Phénomène de masse qui est potentiellement plus dangereux que l'économie clas
 
 [](http://internetactu.blog.lemonde.fr/2016/01/01/plateformescooperatives/)<u>[http://internetactu.blog.lemonde.fr/2016/01/01/plateformescooperatives/](http://internetactu.blog.lemonde.fr/2016/01/01/plateformescooperatives/)</u>
 
-Les plateformes de léconomie collaborative déplace les risques du travail sur les travailleurs eux même (...) Sans travail, les entrepreneur indépendant ne sont que des travailleurs sans droits
+* Les plateformes de léconomie collaborative déplace les risques du travail sur les travailleurs eux même (...) Sans travail, les entrepreneur indépendant ne sont que des travailleurs sans droits
 
-Le modèle d'affaire de ces plateformes repose sur le précariat 
+* Le modèle d'affaire de ces plateformes repose sur le précariat 
 
 [](http://we-lab.co/leconomie-collaborative-une-chimere)<u>[http://we-lab.co/leconomie-collaborative-une-chimere](http://we-lab.co/leconomie-collaborative-une-chimere)</u>
 
-L'économie collaborative est une nouvelle forme d'ultra-libéralisme
+* L'économie collaborative est une nouvelle forme d'ultra-libéralisme
 
 [](http://www.terraeco.net/Le-collaboratif-prend-la-cle-des,64197.html)<u>[http://www.terraeco.net/Le-collaboratif-prend-la-cle-des,64197.html](http://www.terraeco.net/Le-collaboratif-prend-la-cle-des,64197.html)</u>
 
-Un éclairage en milieu rural
+* Un éclairage en milieu rural
 
-Économie collaborative et économie sociale et solidaire sont-elles complémentaires ?
+* Économie collaborative et économie sociale et solidaire sont-elles complémentaires ?
 
 [](http://la-bas.org/les-emissions-258/les-emissions/uber-m-a-tuer)<u>[http://la-bas.org/les-emissions-258/les-emissions/uber-m-a-tuer](http://la-bas.org/les-emissions-258/les-emissions/uber-m-a-tuer)</u>
 
-Pas de salaires, pas d'horaires, pas de cotisations, bref, pas de loi, pas de droit. (...) L'ubérisation c'est la paupérisation garantie
+* Pas de salaires, pas d'horaires, pas de cotisations, bref, pas de loi, pas de droit. (...) L'ubérisation c'est la paupérisation garantie
 
-Propositions d'encadrement de l'économie collaborative du député Pascal Terrasse
+* Propositions d'encadrement de l'économie collaborative du député Pascal Terrasse
 
 [](http://rue89.nouvelobs.com/2016/02/08/les-idees-depute-terrasse-encadrer-leconomie-collaborative-263113)http://rue89.nouvelobs.com/2016/02/08/les-idees-depute-terrasse-encadrer-leconomie-collaborative-263113
 
-[L'économie collaborative, c'est fini](http://magazine.ouishare.net/fr/2016/02/leconomie-collaborative-cest-fini/) par Arthur de Graves
+* [L'économie collaborative, c'est fini](http://magazine.ouishare.net/fr/2016/02/leconomie-collaborative-cest-fini/) par Arthur de Graves
 
-La sortie en grande pompe du [rapport Terrasse](http://www.gouvernement.fr/partage/6421-rapport-de-pascal-terrasse-sur-le-developpement-de-l-economie-collaborative)  signe d'une certaine façon l'entrée de l'écomie collaborative sur la  scène politique, la vraie. Pourtant, j'avoue avoir de plus en plus de mal à réprimer un sentiment de malaise.
+* La sortie en grande pompe du [rapport Terrasse](http://www.gouvernement.fr/partage/6421-rapport-de-pascal-terrasse-sur-le-developpement-de-l-economie-collaborative)  signe d'une certaine façon l'entrée de l'écomie collaborative sur la  scène politique, la vraie. Pourtant, j'avoue avoir de plus en plus de mal à réprimer un sentiment de malaise.
 
 [](https://medium.com/welcome-to-thefamily/lettre-ouverte-%C3%A0-lgrandguillaume-bf28dd6cb6f8#.5idyktgpr)https://medium.com/welcome-to-thefamily/lettre-ouverte-%C3%A0-lgrandguillaume-bf28dd6cb6f8#.5idyktgpr Par Nicolas Colin 
 
-Entre Uber et G7 (taxis) "il est urgent de réintroduire un point de vue qui n'a pas beaucoup été pris en compte : celui des usagers." Le statut quo n'y aide pas. "Le curseur que peuvent faire bouger les pouvoirs publics, sur un marché aussi réglementé, n'est pas entre les taxis et les VTC, mais entre les _gros_ et les_petits_."
+* Entre Uber et G7 (taxis) "il est urgent de réintroduire un point de vue qui n'a pas beaucoup été pris en compte : celui des usagers." Le statut quo n'y aide pas. "Le curseur que peuvent faire bouger les pouvoirs publics, sur un marché aussi réglementé, n'est pas entre les taxis et les VTC, mais entre les _gros_ et les_petits_."
 
 [](http://iaata.info/Le-Uber-de-la-restauration-debarque-a-Toulouse-L-independance-c-est-l-esclavage-1023.html)http://iaata.info/Le-Uber-de-la-restauration-debarque-a-Toulouse-L-independance-c-est-l-esclavage-1023.html
 
-"« _On travaille en free-lance_ » ; l'affirmation, orwellienne, sort de la bouche d'un de ces jeunes gens branchés qui arpentent depuis peu les rues de Toulouse. Trench, sacs à dos et casquettes vertes vissés sur la tête, ils et elles vous livrent chez vous et en vélo le plat de votre resto favori. Ils et elles n'ont pas de contrat de travail, sont rémunérées à la course, et n'ont qu'un seul client : Take Eat Easy pour les unes, Deliveroo pour les autres. Récit d'une collaboration libre, heureuse et, surtout, totalement indépendante."
+* " _On travaille en free-lance_ » ; l'affirmation, orwellienne, sort de la bouche d'un de ces jeunes gens branchés qui arpentent depuis peu les rues de Toulouse. Trench, sacs à dos et casquettes vertes vissés sur la tête, ils et elles vous livrent chez vous et en vélo le plat de votre resto favori. Ils et elles n'ont pas de contrat de travail, sont rémunérées à la course, et n'ont qu'un seul client : Take Eat Easy pour les unes, Deliveroo pour les autres. Récit d'une collaboration libre, heureuse et, surtout, totalement indépendante."
 
 [](http://www.blog.cresol.fr/2016/04/22/ess-et-economie-collaborative-1-un-probleme-de-communs/)http://www.blog.cresol.fr/2016/04/22/ess-et-economie-collaborative-1-un-probleme-de-communs/
 
-"Finalement, ce que ESS et économie collaborative ont vraiment en commun, c'est leur incapacité à faire évoluer leur rapport au pouvoir. (...) La capacité de transformation réelle de ces acteurs est une question culturelle intimement politique (...) les Communs ouvrent une voie transverse. "
+* "Finalement, ce que ESS et économie collaborative ont vraiment en commun, c'est leur incapacité à faire évoluer leur rapport au pouvoir. (...) La capacité de transformation réelle de ces acteurs est une question culturelle intimement politique (...) les Communs ouvrent une voie transverse. "
