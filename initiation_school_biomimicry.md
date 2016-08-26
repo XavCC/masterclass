@@ -31,7 +31,7 @@ Dans cet atelier de _design thinking _ (ou pensée design) les participants sont
 
 *   Le plan du bâtiment doit peser moins d'1 gramme, tenir dans une boite d'allumette. Puis quand tu le jettes au sol, le bâtiment  pousse tout seul ....
 
-<undefined><li>**Question **: q**u'est-ce ? (ça mouline, ça fuse, ça turbine...). Réponse : un Baobab !**</li></undefined>
+**Question **: qu'est-ce que c'est ? (ça mouline, ça fuse, ça turbine...). Réponse : un Baobab !**
 
 ![](https://hackpad-attachments.s3.amazonaws.com/hackpad.com_a5Jy2aHZ0Ev_p.266912_1445076299136_blt pondi5.jpg)
 
